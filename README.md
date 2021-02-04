@@ -1,1 +1,1 @@
-# self-designed-game-7
+# SELF-DESIGNED-GAME-1
